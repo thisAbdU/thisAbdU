@@ -14,9 +14,6 @@
 - **Location:** Addis Ababa, Ethiopia  
 
 😄 **Pronouns:** He/Him  
-
-⚡ **Fun fact:** I participated in the Africa To Silicon Valley program, which connects talented African students to leading global tech companies. My team won third place at a hackathon out of 54 teams!  
-
 ---
 
 ## **Skills**
